@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @Rudha8573Hydro
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+Rudha8573Hydro/Rudha8573Hydro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+I Is leargin c++ c Am Like Malwares And my ancoont is Inpradr By Jhopro From Brazil am so from brazil
+
+PTBR-Oi Meu Nome E Rudha Eu Estudo C++ C Eu Estou Criando Um trojan E Esta Conta Do Github E Insprada No canal Jhopro mais Cohesido Como Artic Agradeso pelo Este Cara 
